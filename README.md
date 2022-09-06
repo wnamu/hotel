@@ -5,8 +5,9 @@
 
 ## Hong Kong
 - [Intercontinental Hong Kong (2015)](https://blog.naver.com/w_namu/222703568206)
-- [Sheraton Hong Kong Hotel & Towers (2016)](https://blog.naver.com/w_namu/222467687760)
+- [Sheraton Hong Kong Hotel & Towers - Executive 1 Bedroom Suite (2016)](https://blog.naver.com/w_namu/222467687760)
 
 ##  Seoul
-- [Josun Palace, a Luxury Collection Hotel, Seoul Gangnam (2020)](https://blog.naver.com/w_namu/222526731484)
-- [L'Escape Hotel (2020)](https://blog.naver.com/w_namu/222482821898)
+- [Josun Palace, a Luxury Collection Hotel, Seoul Gangnam - Grand Masters (2021)](https://blog.naver.com/w_namu/222526731484)
+- [L'Escape Hotel - Grand Deluxe Atelier (2020)](https://blog.naver.com/w_namu/222482821898)
+- [Le Méridien Seoul - Balcony Suite (2020)](https://blog.naver.com/w_namu/222627935510)
