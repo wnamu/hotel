@@ -11,3 +11,6 @@
 - [Josun Palace, a Luxury Collection Hotel, Seoul Gangnam - Grand Masters (2021)](https://blog.naver.com/w_namu/222526731484)
 - [L'Escape Hotel - Grand Deluxe Atelier (2020)](https://blog.naver.com/w_namu/222482821898)
 - [Le Méridien Seoul - Balcony Suite (2020)](https://blog.naver.com/w_namu/222627935510)
+
+## Singapore
+- [W Singapore Sentosa Cove - Marvelous Suite (2017)](https://blog.naver.com/w_namu/222814614805)
