@@ -1,6 +1,9 @@
 # Hotel Review
 
-##  Hawaii
+## Amsterdam
+- [Novotel Amsterdam City Hotel (2008)[(https://blog.naver.com/w_namu/222554487780)
+
+## Hawaii
 - [Sheraton Princess Kaiulani Hotel (2016)](https://blog.naver.com/w_namu/222437830693)
 
 ## Hong Kong
