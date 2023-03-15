@@ -11,12 +11,12 @@
 - [Sheraton Princess Kaiulani Hotel (2016)](https://blog.naver.com/PostView.naver?blogId=w_namu&logNo=222437830693)
 
 ## Hong Kong
-
+- [Hotel Indigo Hong Kong Island (2014)](https://blog.naver.com/PostView.naver?blogId=w_namu&logNo=222434773652)
 - [Crowne Plaza Hong Kong Causeway Bay (2015)](https://blog.naver.com/PostView.naver?blogId=w_namu&logNo=222401565996)
 - [Intercontinental Hong Kong (2015)](https://blog.naver.com/PostView.naver?blogId=w_namu&logNo=222703568206)
 - [Sheraton Hong Kong Hotel & Towers - Executive 1 Bedroom Suite (2016)](https://blog.naver.com/PostView.naver?blogId=w_namu&logNo=222467687760)
 
-##  Seoul
+## Seoul
 - [Josun Palace, a Luxury Collection Hotel, Seoul Gangnam - Grand Masters (2021)](https://blog.naver.com/PostView.naver?blogId=w_namu&logNo=222526731484)
 - [L'Escape Hotel - Grand Deluxe Atelier (2020)](https://blog.naver.com/PostView.naver?blogId=w_namu&logNo=222482821898)
 - [Le Méridien Seoul - Balcony Suite (2020)](https://blog.naver.com/PostView.naver?blogId=w_namu&logNo=222627935510)
