@@ -4,6 +4,7 @@
 - [Novotel Amsterdam City Hotel (2008)](https://blog.naver.com/PostView.naver?blogId=w_namu&logNo=222554487780)
 
 ## Bali
+- [Holiday Inn Resort Bali Benoa (2015)](https://blog.naver.com/PostView.naver?blogId=w_namu&logNo=222404499579)
 - [Padma Ubud Resort (2022)](https://blog.naver.com/PostView.naver?blogId=w_namu&logNo=222927818780)
 - [Sheraton Bali Kuta Resort (2014)](https://blog.naver.com/PostView.naver?blogId=w_namu&logNo=222401618904)
 
