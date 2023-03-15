@@ -12,6 +12,7 @@
 - [Sheraton Princess Kaiulani Hotel (2016)](https://blog.naver.com/PostView.naver?blogId=w_namu&logNo=222437830693)
 
 ## Hong Kong
+- [Conrad Hong Kong Hotel (2017)](https://blog.naver.com/PostView.naver?blogId=w_namu&logNo=222466830502)
 - [Crowne Plaza Hong Kong Causeway Bay (2015)](https://blog.naver.com/PostView.naver?blogId=w_namu&logNo=222401565996)
 - [Hotel Indigo Hong Kong Island (2014)](https://blog.naver.com/PostView.naver?blogId=w_namu&logNo=222434773652)
 - [Intercontinental Hong Kong (2015)](https://blog.naver.com/PostView.naver?blogId=w_namu&logNo=222703568206)
