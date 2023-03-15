@@ -22,6 +22,7 @@
 - [JW Marriott Seoul Hotel (2016)](https://blog.naver.com/PostView.naver?blogId=w_namu&logNo=222404037235)
 - [L'Escape Hotel - Grand Deluxe Atelier (2020)](https://blog.naver.com/PostView.naver?blogId=w_namu&logNo=222482821898)
 - [Le Méridien Seoul Hotel - Balcony Suite (2020)](https://blog.naver.com/PostView.naver?blogId=w_namu&logNo=222627935510)
+- [Novotal Ambassador Seoul Yongsan (2019)](https://blog.naver.com/PostView.naver?blogId=w_namu&logNo=222865460318)
 - [The Shilla Seoul Hotel (2017)](https://blog.naver.com/PostView.naver?blogId=w_namu&logNo=222395152132)
 
 ## Singapore
