@@ -1,13 +1,14 @@
 # Hotel Review
 
 ## Amsterdam
-- [Novotel Amsterdam City Hotel (2008)](https://blog.naver.com/w_namu/222554487780)
+- [Novotel Amsterdam City Hotel (2008)](https://blog.naver.com/PostView.naver?blogId=w_namu&logNo=222554487780)
 
 ## Bali
-- [Sheraton Bali Kuta Resort (2014)](https://blog.naver.com/w_namu/222401618904)
+- [Sheraton Bali Kuta Resort (2014)](https://blog.naver.com/PostView.naver?blogId=w_namu&logNo=222401618904)
+- [Padma Ubud Resort (2022)](https://blog.naver.com/PostView.naver?blogId=w_namu&logNo=222927818780)
 
 ## Hawaii
-- [Sheraton Princess Kaiulani Hotel (2016)](https://blog.naver.com/w_namu/222437830693)
+- [Sheraton Princess Kaiulani Hotel (2016)](https://blog.naver.com/PostView.naver?blogId=w_namu&logNo=222437830693)
 
 ## Hong Kong
 - [Intercontinental Hong Kong (2015)](https://blog.naver.com/w_namu/222703568206)
