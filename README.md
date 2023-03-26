@@ -20,10 +20,16 @@
 - [Conrad Hong Kong Hotel (2017)](https://blog.naver.com/PostView.naver?blogId=w_namu&logNo=222466830502)
 - [W Hong Kong - Fabulous (2018)](https://blog.naver.com/PostView.naver?blogId=w_namu&logNo=222410011020)
 
+## Japan
+- [ANA Crowne Plaza Fukuoka (2022)](https://blog.naver.com/PostView.naver?blogId=w_namu&logNo=222991894410)
+
 ## Seoul
+- [Grand Intercontinental Seoul Parnas (2009)](https://blog.naver.com/PostView.naver?blogId=w_namu&logNo=222434304337)
 - [Renaissance Seoul (2011)](https://blog.naver.com/PostView.naver?blogId=w_namu&logNo=222865874324)
+- [Sheraton Grande Walkerhill Seoul - Club Family Suite (2015)](https://blog.naver.com/PostView.naver?blogId=w_namu&logNo=222418198183)
 - [JW Marriott Seoul Hotel (2016)](https://blog.naver.com/PostView.naver?blogId=w_namu&logNo=222404037235)
 - [The Shilla Seoul Hotel (2017)](https://blog.naver.com/PostView.naver?blogId=w_namu&logNo=222395152132)
+- [Four Points By Sheraton Seoul, Namsan (2017)](https://blog.naver.com/PostView.naver?blogId=w_namu&logNo=222427470315)
 - [Novotal Ambassador Seoul Yongsan (2019)](https://blog.naver.com/PostView.naver?blogId=w_namu&logNo=222865460318)
 - [L'Escape Hotel - Grand Deluxe Atelier (2020)](https://blog.naver.com/PostView.naver?blogId=w_namu&logNo=222482821898)
 - [Le Méridien Seoul Hotel - Balcony Suite (2020)](https://blog.naver.com/PostView.naver?blogId=w_namu&logNo=222627935510)
