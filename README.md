@@ -22,6 +22,7 @@
 - [W Hong Kong - Fabulous (2018)](https://blog.naver.com/PostView.naver?blogId=w_namu&logNo=222410011020)
 
 ## Japan (일본)
+- [Hyatt Regency Fukuoka (2018)](https://blog.naver.com/PostView.naver?blogId=w_namu&logNo=222853373079)
 - [ANA Crowne Plaza Fukuoka (2022)](https://blog.naver.com/PostView.naver?blogId=w_namu&logNo=222991894410)
 
 ## Seoul (서울, 대한민국)
