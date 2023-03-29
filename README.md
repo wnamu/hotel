@@ -43,4 +43,4 @@
 - [W Singapore Sentosa Cove - Marvelous Suite (2017)](https://blog.naver.com/PostView.naver?blogId=w_namu&logNo=222814614805)
 
 ## Thailand (태국)
-- [JW Marriott Phuket Resort & Spa - Ocean Front Suite (2012)] (https://blog.naver.com/PostView.naver?blogId=w_namu&logNo=222418655189)
+- [JW Marriott Phuket Resort & Spa - Ocean Front Suite (2012)](https://blog.naver.com/PostView.naver?blogId=w_namu&logNo=222418655189)
