@@ -9,6 +9,9 @@
 - [Holiday Inn Resort Bali Benoa (2015)](https://blog.naver.com/PostView.naver?blogId=w_namu&logNo=222404499579)
 - [Padma Ubud Resort (2022)](https://blog.naver.com/PostView.naver?blogId=w_namu&logNo=222927818780)
 
+## Guam (괌, 미국)
+- [Westin Resort Guam - Ocean Front Suite (2019)](https://blog.naver.com/PostView.naver?blogId=w_namu&logNo=222403035198)
+
 ## Hawaii (하와이, 미국)
 - [Sheraton Princess Kaiulani Hotel (2016)](https://blog.naver.com/PostView.naver?blogId=w_namu&logNo=222437830693)
 
