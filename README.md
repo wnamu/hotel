@@ -40,6 +40,7 @@
 - [Le Méridien Seoul Hotel - Balcony Suite (2020)](https://blog.naver.com/PostView.naver?blogId=w_namu&logNo=222627935510)
 - [Moxy Seoul Insadong - Suite (2021)](https://blog.naver.com/PostView.naver?blogId=w_namu&logNo=222412370560)
 - [Josun Palace, a Luxury Collection Hotel, Seoul Gangnam - Grand Masters (2021)](https://blog.naver.com/PostView.naver?blogId=w_namu&logNo=222526731484)
+- [Ryse Autograph Collection - Producer Suite (2021)](https://blog.naver.com/PostView.naver?blogId=w_namu&logNo=222636880078)
 - [The Plaza Seoul, Autograph Collection Hotel (2021)](https://blog.naver.com/PostView.naver?blogId=w_namu&logNo=222749964702)
 - [Hilton Garden Inn Seoul Gangnam - Deluxe King (2022)](https://blog.naver.com/PostView.naver?blogId=w_namu&logNo=222884087425)
 
