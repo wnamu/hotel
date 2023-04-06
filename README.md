@@ -6,7 +6,7 @@
 ## Bali (발리, 인도네시아)
 - [Intercontinental Bali Resort - Singaraja Duplex (2012)](https://blog.naver.com/PostView.naver?blogId=w_namu&logNo=222404577204)
 - [Sheraton Bali Kuta Resort (2014)](https://blog.naver.com/PostView.naver?blogId=w_namu&logNo=222401618904)
-- [Holiday Inn Resort Bali Benoa (2015)](https://blog.naver.com/PostView.naver?blogId=w_namu&logNo=222404499579)
+- [Holiday Inn Resort Bali Benoa - Pool Access (2015)](https://blog.naver.com/PostView.naver?blogId=w_namu&logNo=222404499579)
 - [Padma Ubud Resort (2022)](https://blog.naver.com/PostView.naver?blogId=w_namu&logNo=222927818780)
 
 ## Guam (괌, 미국)
@@ -17,6 +17,7 @@
 
 ## Hong Kong (홍콩)
 - [Intercontinental Hong Kong - Junior Suite (2009)](https://blog.naver.com/PostView.naver?blogId=w_namu&logNo=222443883557)
+- [Courtyard Hong Kong (2013)](https://blog.naver.com/PostView.naver?blogId=w_namu&logNo=222401586466)
 - [Hotel Indigo Hong Kong Island (2014)](https://blog.naver.com/PostView.naver?blogId=w_namu&logNo=222434773652)
 - [Intercontinental Hong Kong (2015)](https://blog.naver.com/PostView.naver?blogId=w_namu&logNo=222703568206)
 - [Crowne Plaza Hong Kong Causeway Bay (2015)](https://blog.naver.com/PostView.naver?blogId=w_namu&logNo=222401565996)
