@@ -32,6 +32,8 @@
 ## Seoul (서울, 대한민국)
 - [Grand Intercontinental Seoul Parnas (2009)](https://blog.naver.com/PostView.naver?blogId=w_namu&logNo=222434304337)
 - [Renaissance Seoul (2011)](https://blog.naver.com/PostView.naver?blogId=w_namu&logNo=222865874324)
+- [Holiday Inn Gwangju Hotel (2012)](https://blog.naver.com/PostView.naver?blogId=w_namu&logNo=222414772526)
+- [Grand Intercontinental Seoul Parnas - Residence Suite (2012)](https://blog.naver.com/PostView.naver?blogId=w_namu&logNo=222402710404)
 - [Sheraton Grande Walkerhill Seoul - Club Family Suite (2015)](https://blog.naver.com/PostView.naver?blogId=w_namu&logNo=222418198183)
 - [JW Marriott Seoul Hotel (2016)](https://blog.naver.com/PostView.naver?blogId=w_namu&logNo=222404037235)
 - [The Shilla Seoul Hotel (2017)](https://blog.naver.com/PostView.naver?blogId=w_namu&logNo=222395152132)
