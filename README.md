@@ -50,5 +50,8 @@
 ## Singapore (싱가포르)
 - [W Singapore Sentosa Cove - Marvelous Suite (2017)](https://blog.naver.com/PostView.naver?blogId=w_namu&logNo=222814614805)
 
+## Taiwan (타이완/대만)
+- [Aloft Taipei Beitou (2018)](https://blog.naver.com/PostView.naver?blogId=w_namu&logNo=222553250659)
+
 ## Thailand (태국)
 - [JW Marriott Phuket Resort & Spa - Ocean Front Suite (2012)](https://blog.naver.com/PostView.naver?blogId=w_namu&logNo=222418655189)
