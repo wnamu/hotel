@@ -23,6 +23,7 @@
 - [Crowne Plaza Hong Kong Causeway Bay (2015)](https://blog.naver.com/PostView.naver?blogId=w_namu&logNo=222401565996)
 - [Sheraton Hong Kong Hotel & Towers - Executive 1 Bedroom Suite (2016)](https://blog.naver.com/PostView.naver?blogId=w_namu&logNo=222467687760)
 - [Conrad Hong Kong Hotel (2017)](https://blog.naver.com/PostView.naver?blogId=w_namu&logNo=222466830502)
+- [Gateway Hotel, Hong Kong - Marco Polo Hotels (2018)](https://blog.naver.com/PostView.naver?blogId=w_namu&logNo=223041883990)
 - [W Hong Kong - Fabulous (2018)](https://blog.naver.com/PostView.naver?blogId=w_namu&logNo=222410011020)
 
 ## Japan (일본)
