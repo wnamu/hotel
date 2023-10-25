@@ -7,6 +7,7 @@
 - [Intercontinental Bali Resort - Singaraja Duplex (2012)](https://blog.naver.com/PostView.naver?blogId=w_namu&logNo=222404577204)
 - [Sheraton Bali Kuta Resort (2014)](https://blog.naver.com/PostView.naver?blogId=w_namu&logNo=222401618904)
 - [Holiday Inn Resort Bali Benoa - Pool Access (2015)](https://blog.naver.com/PostView.naver?blogId=w_namu&logNo=222404499579)
+- [The Ritz-Carlton, Bali (2015)](https://blog.naver.com/PostView.naver?blogId=w_namu&logNo=222853505126)
 - [Padma Ubud Resort (2022)](https://blog.naver.com/PostView.naver?blogId=w_namu&logNo=222927818780)
 
 ## Guam (괌, 미국)
@@ -52,6 +53,7 @@
 - [W Singapore Sentosa Cove - Marvelous Suite (2017)](https://blog.naver.com/PostView.naver?blogId=w_namu&logNo=222814614805)
 
 ## Taiwan (타이완/대만)
+- [Grand Hyatt Taipei (2016)](hhttps://blog.naver.com/PostView.naver?blogId=w_namu&logNo=222739074245)
 - [Aloft Taipei Beitou (2018)](https://blog.naver.com/PostView.naver?blogId=w_namu&logNo=222553250659)
 
 ## Thailand (태국)
