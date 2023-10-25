@@ -53,7 +53,7 @@
 - [W Singapore Sentosa Cove - Marvelous Suite (2017)](https://blog.naver.com/PostView.naver?blogId=w_namu&logNo=222814614805)
 
 ## Taiwan (타이완/대만)
-- [Grand Hyatt Taipei (2016)](hhttps://blog.naver.com/PostView.naver?blogId=w_namu&logNo=222739074245)
+- [Grand Hyatt Taipei (2016)](https://blog.naver.com/PostView.naver?blogId=w_namu&logNo=222739074245)
 - [Aloft Taipei Beitou (2018)](https://blog.naver.com/PostView.naver?blogId=w_namu&logNo=222553250659)
 
 ## Thailand (태국)
