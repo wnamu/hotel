@@ -58,3 +58,8 @@
 
 ## Thailand (태국)
 - [JW Marriott Phuket Resort & Spa - Ocean Front Suite (2012)](https://blog.naver.com/PostView.naver?blogId=w_namu&logNo=222418655189)
+
+
+# Hotel Search
+- [The Chapter Kyoto, a Tribute Portfolio Hotel - Marriott](https://search.daum.net/search?w=tot&q=%EA%B5%90%ED%86%A0+%ED%8A%B8%EB%A6%AC%EB%B7%B0%ED%8A%B8)
+- [The Chapter Kyoto, a Tribute Portfolio Hotel - Marriott](https://search.naver.com/search.naver?query=%EA%B5%90%ED%86%A0+%EC%B1%95%ED%84%B0+%ED%8A%B8%EB%A6%AC%EB%B7%B0%ED%8A%B8)
