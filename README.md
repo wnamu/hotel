@@ -36,6 +36,7 @@
 - [Renaissance Seoul (2011)](https://blog.naver.com/PostView.naver?blogId=w_namu&logNo=222865874324)
 - [Holiday Inn Gwangju Hotel (2012)](https://blog.naver.com/PostView.naver?blogId=w_namu&logNo=222414772526)
 - [Grand Intercontinental Seoul Parnas - Residence Suite (2012)](https://blog.naver.com/PostView.naver?blogId=w_namu&logNo=222402710404)
+- [Conrad Seoul Hotel - Grand Kind Executive Corner Suite (2014)](https://blog.naver.com/PostView.naver?blogId=w_namu&logNo=222983751236)
 - [Sheraton Grande Walkerhill Seoul - Club Family Suite (2015)](https://blog.naver.com/PostView.naver?blogId=w_namu&logNo=222418198183)
 - [JW Marriott Seoul Hotel (2016)](https://blog.naver.com/PostView.naver?blogId=w_namu&logNo=222404037235)
 - [The Shilla Seoul Hotel (2017)](https://blog.naver.com/PostView.naver?blogId=w_namu&logNo=222395152132)
@@ -61,5 +62,6 @@
 
 
 # Hotel Search
+- [Conrad Seoul Hotel](https://search.naver.com/search.naver?query=%EC%BD%98%EB%9E%98%EB%93%9C+%ED%98%B8%ED%85%94+grand+king+executive+suite+%ED%95%9C%EA%B0%95%EC%95%BC%EA%B2%BD)
 - [The Chapter Kyoto, a Tribute Portfolio Hotel - Marriott](https://search.daum.net/search?w=tot&q=%EA%B5%90%ED%86%A0+%ED%8A%B8%EB%A6%AC%EB%B7%B0%ED%8A%B8)
 - [The Chapter Kyoto, a Tribute Portfolio Hotel - Marriott](https://search.naver.com/search.naver?query=%EA%B5%90%ED%86%A0+%EC%B1%95%ED%84%B0+%ED%8A%B8%EB%A6%AC%EB%B7%B0%ED%8A%B8)
