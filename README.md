@@ -8,6 +8,7 @@
 - [Sheraton Bali Kuta Resort (2014)](https://blog.naver.com/PostView.naver?blogId=w_namu&logNo=222401618904)
 - [Holiday Inn Resort Bali Benoa - Pool Access (2015)](https://blog.naver.com/PostView.naver?blogId=w_namu&logNo=222404499579)
 - [The Ritz-Carlton, Bali (2015)](https://blog.naver.com/PostView.naver?blogId=w_namu&logNo=222853505126)
+- [The Ritz-Carlton, Bali - Senses Restaurant (2015)](https://blog.naver.com/PostView.naver?blogId=w_namu&logNo=222853504040)
 - [Padma Ubud Resort (2022)](https://blog.naver.com/PostView.naver?blogId=w_namu&logNo=222927818780)
 
 ## Guam (괌, 미국)
@@ -30,6 +31,8 @@
 ## Japan (일본)
 - [Hyatt Regency Fukuoka (2018)](https://blog.naver.com/PostView.naver?blogId=w_namu&logNo=222853373079)
 - [ANA Crowne Plaza Fukuoka (2022)](https://blog.naver.com/PostView.naver?blogId=w_namu&logNo=222991894410)
+- [The Chapter Kyoto, a Tribute Portfolio Hotel (2023)](https://blog.naver.com/PostView.naver?blogId=w_namu&logNo=223272280457)
+- [ibis Styles Tokyo Ginza (2023)](https://blog.naver.com/PostView.naver?blogId=w_namu&logNo=223307523777)
 
 ## Seoul (서울, 대한민국)
 - [Grand Intercontinental Seoul Parnas (2009)](https://blog.naver.com/PostView.naver?blogId=w_namu&logNo=222434304337)
