@@ -68,5 +68,7 @@
 - [Conrad Seoul Hotel](https://search.naver.com/search.naver?query=%EC%BD%98%EB%9E%98%EB%93%9C+%ED%98%B8%ED%85%94+grand+king+executive+suite+%ED%95%9C%EA%B0%95%EC%95%BC%EA%B2%BD)
 - [Gateway Hotel, Hong Kong](https://search.naver.com/search.naver?where=view&query=%EA%B2%8C%EC%9D%B4%ED%8A%B8%EC%9B%A8%EC%9D%B4+%EB%A7%88%EB%A5%B4%EC%BD%94%ED%8F%B4%EB%A1%9C+%ED%98%B8%ED%85%94+%ED%99%8D%EC%BD%A9)
 - [Grand Hyatt Fukuoka Hotel](https://search.naver.com/search.naver?where=view&query=%EA%B7%B8%EB%9E%9C%EB%93%9C+%ED%95%98%EC%96%8F%ED%8A%B8+%ED%9B%84%EC%BF%A0%EC%98%A4%EC%B9%B4+%EC%A1%B0%EC%8B%9D)
+- [ibis Styles Tokyo Ginza](https://search.naver.com/search.naver?where=view&query=%EB%8F%84%EC%BF%84+%EC%9D%B4%EB%B9%84%EC%8A%A4+%EC%8A%A4%ED%83%80%EC%9D%BC%EC%8A%A4+%EA%B8%B4%EC%9E%90+%EC%8B%A0%EB%B0%94%EC%8B%9C)
+- [Regent Hong Kong](https://search.naver.com/search.naver?where=view&query=%ED%99%8D%EC%BD%A9+%EB%A6%AC%EC%A0%A0%ED%8A%B8+%ED%98%B8%ED%85%94+%ED%83%80%EC%9E%84%EB%9E%A9%EC%8A%A4+%ED%95%98%EB%B2%84%EB%B7%B0)
 - [The Chapter Kyoto, a Tribute Portfolio Hotel - Marriott](https://search.daum.net/search?w=tot&q=%EA%B5%90%ED%86%A0+%ED%8A%B8%EB%A6%AC%EB%B7%B0%ED%8A%B8)
 - [The Chapter Kyoto, a Tribute Portfolio Hotel - Marriott](https://search.naver.com/search.naver?query=%EA%B5%90%ED%86%A0+%EC%B1%95%ED%84%B0+%ED%8A%B8%EB%A6%AC%EB%B7%B0%ED%8A%B8)
