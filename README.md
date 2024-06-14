@@ -31,7 +31,12 @@
 ## Japan (일본)
 - [Hyatt Regency Fukuoka (2018)](https://blog.naver.com/PostView.naver?blogId=w_namu&logNo=222853373079)
 - [ANA Crowne Plaza Fukuoka (2022)](https://blog.naver.com/PostView.naver?blogId=w_namu&logNo=222991894410)
+- [Grand Hyatt Fukuoka (2022)](https://blog.naver.com/PostView.naver?blogId=w_namu&logNo=223089080044)
+- [Grand Hyatt Fukuoka - In-room Dining (2022)](https://blog.naver.com/PostView.naver?blogId=w_namu&logNo=223275088991)
 - [The Chapter Kyoto, a Tribute Portfolio Hotel (2023)](https://blog.naver.com/PostView.naver?blogId=w_namu&logNo=223272280457)
+- [The Chapter Kyoto, a Tribute Portfolio Hotel - CHAPTER THE GRILL (2023)](https://blog.naver.com/PostView.naver?blogId=w_namu&logNo=223357736279)
+- [The Ritz Carlton Kyoto - Kamogawa View Grand Deluxe Guest Room (2023)](https://blog.naver.com/PostView.naver?blogId=w_namu&logNo=223333951850)
+- [The Ritz Carlton Kyoto - Mizuki (2023)](https://blog.naver.com/PostView.naver?blogId=w_namu&logNo=223419884390)
 - [ibis Styles Tokyo Ginza (2023)](https://blog.naver.com/PostView.naver?blogId=w_namu&logNo=223307523777)
 
 ## Seoul (서울, 대한민국)
