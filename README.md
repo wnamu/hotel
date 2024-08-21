@@ -19,6 +19,7 @@
 
 ## Hong Kong (홍콩)
 - [Intercontinental Hong Kong - Junior Suite (2009)](https://blog.naver.com/PostView.naver?blogId=w_namu&logNo=222443883557)
+- [Courtyard Hong Kong (2011)](https://blog.naver.com/PostView.naver?blogId=w_namu&logNo=223536476076)
 - [Courtyard Hong Kong (2013)](https://blog.naver.com/PostView.naver?blogId=w_namu&logNo=222401586466)
 - [Hotel Indigo Hong Kong Island (2014)](https://blog.naver.com/PostView.naver?blogId=w_namu&logNo=222434773652)
 - [Intercontinental Hong Kong (2015)](https://blog.naver.com/PostView.naver?blogId=w_namu&logNo=222703568206)
@@ -27,6 +28,9 @@
 - [Conrad Hong Kong Hotel (2017)](https://blog.naver.com/PostView.naver?blogId=w_namu&logNo=222466830502)
 - [Gateway Hotel, Hong Kong - Marco Polo Hotels (2018)](https://blog.naver.com/PostView.naver?blogId=w_namu&logNo=223041883990)
 - [W Hong Kong - Fabulous (2018)](https://blog.naver.com/PostView.naver?blogId=w_namu&logNo=222410011020)
+- [The St. Regis Macao (2019)](https://blog.naver.com/PostView.naver?blogId=w_namu&logNo=223426325951)
+- [The Ritz-Carlton, Macau - Room (2019)](https://blog.naver.com/PostView.naver?blogId=w_namu&logNo=223519345361)
+- [The Ritz-Carlton, Macau - Swimming Pool (2019)](https://blog.naver.com/PostView.naver?blogId=w_namu&logNo=223542897474)
 
 ## Japan (일본)
 - [Hyatt Regency Fukuoka (2018)](https://blog.naver.com/PostView.naver?blogId=w_namu&logNo=222853373079)
