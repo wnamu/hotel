@@ -50,6 +50,7 @@
 - [Grand Intercontinental Seoul Parnas - Residence Suite (2012)](https://blog.naver.com/PostView.naver?blogId=w_namu&logNo=222402710404)
 - [Conrad Seoul Hotel - Grand Kind Executive Corner Suite (2014)](https://blog.naver.com/PostView.naver?blogId=w_namu&logNo=222983751236)
 - [Sheraton Grande Walkerhill Seoul - Club Family Suite (2015)](https://blog.naver.com/PostView.naver?blogId=w_namu&logNo=222418198183)
+- [ibis Ambassador Suwon Hotel (2015)](https://blog.naver.com/PostView.naver?blogId=w_namu&logNo=222427715169)
 - [JW Marriott Seoul Hotel (2016)](https://blog.naver.com/PostView.naver?blogId=w_namu&logNo=222404037235)
 - [The Shilla Seoul Hotel (2017)](https://blog.naver.com/PostView.naver?blogId=w_namu&logNo=222395152132)
 - [Four Points By Sheraton Seoul, Namsan (2017)](https://blog.naver.com/PostView.naver?blogId=w_namu&logNo=222427470315)
@@ -61,6 +62,7 @@
 - [Ryse Autograph Collection - Producer Suite (2021)](https://blog.naver.com/PostView.naver?blogId=w_namu&logNo=222636880078)
 - [The Plaza Seoul, Autograph Collection Hotel (2021)](https://blog.naver.com/PostView.naver?blogId=w_namu&logNo=222749964702)
 - [Hilton Garden Inn Seoul Gangnam - Deluxe King (2022)](https://blog.naver.com/PostView.naver?blogId=w_namu&logNo=222884087425)
+- [Novotel Ambassador Seoul Gangnam - Hongbogak (2024)](https://blog.naver.com/PostView.naver?blogId=w_namu&logNo=223503981950)
 
 ## Singapore (싱가포르)
 - [W Singapore Sentosa Cove - Marvelous Suite (2017)](https://blog.naver.com/PostView.naver?blogId=w_namu&logNo=222814614805)
