@@ -31,6 +31,7 @@
 - [The St. Regis Macao (2019)](https://blog.naver.com/PostView.naver?blogId=w_namu&logNo=223426325951)
 - [The Ritz-Carlton, Macau - Room (2019)](https://blog.naver.com/PostView.naver?blogId=w_namu&logNo=223519345361)
 - [The Ritz-Carlton, Macau - Swimming Pool (2019)](https://blog.naver.com/PostView.naver?blogId=w_namu&logNo=223542897474)
+- [The Langham, Hong Kong / 香港朗廷酒店 (2019)](https://blog.naver.com/PostView.naver?blogId=w_namu&logNo=223565774132)
 
 ## Japan (일본)
 - [Hyatt Regency Fukuoka (2018)](https://blog.naver.com/PostView.naver?blogId=w_namu&logNo=222853373079)
